@@ -4,7 +4,7 @@
 ### 另外，该网站建议使用科学上网VPN访问，否则下载速度会很慢，vpn可在https://www.github.com 内直接搜索下载使用。
 #### 美食交流群:https://t.me/+zPr20liQx_c1ZmVl
 # 如果您是作者，我将很高兴您能够进群与我一起探讨软件安全的问题，我将全力帮助您在软件安全上做到极致，并达成一定的协议。
-## 下载地址:https://github.com/bashilo-clonidate/msdzlsqkq/releases
+## 下载地址:https://github.com/bashilo-clonidate/candy-patron-saint/releases
 甜糖守护神破解版，可用无毒。  
 使用前请务必下载code区的使用说明并仔细阅读，造成损失概不负责
 # 使用说明如下：
